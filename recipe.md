@@ -24,3 +24,10 @@
 4. In a separate bowl, beat the eggs and add them to the mixture. Stir until well combined.
 5. Gradually add the milk and vegetable oil to the mixture, continuing to stir.
 6. Pour the batter into a greased and floured 9x13-inch baking pan.
+
+
+## Additional Directions by tjcaul:
+7. Cut leaves and cores out of fresh strawberries
+8. Place on top of the cake
+9. Add whipped cream
+10. Top with chocolate flakes and dusted cocoa
